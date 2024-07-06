@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: https://t.me/ROYI_TENKAI
 - 😄 Pronouns: ...
-- ⚡ Fun fact:  skibidi
+- ⚡ Fun fact:  skibidi🤓
 -->
